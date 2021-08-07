@@ -4,3 +4,7 @@
 [如何利用 Github Pages 建立一个简易博客？](https://zshene.github.io/Summary/建博客)<br>
 
 [写摘要](https://zshene.github.io/Summary/写摘要)<br>
+
+
+
+*——Try something short before trying something long.*
