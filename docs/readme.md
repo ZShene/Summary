@@ -1,4 +1,4 @@
-[如何完成一份《综合应用能力 ( A类 )》试题？](https://zshene.github.io/Summary/如何完成一份《综合应用能力 ( A类 )》试题？)<br>
+[如何完成一份《综合应用能力 ( A 类 )》试题？](https://zshene.github.io/Summary/如何完成一份《综合应用能力 ( A 类 )》试题？)<br>
 
 [研究方法之许岑对“得到”平台的研究](https://zshene.github.io/Summary/研究方法之许岑对”得到“平台的研究)<br>
 
