@@ -1,3 +1,5 @@
+[作品意识](https://zshene.github.io/Summary/作品意识)<br>
+
 [如何作答《综合应用能力  ( A 类 )》中的概括题？](https://zshene.github.io/Summary/如何作答《综合应用能力  ( A 类 )》中的概括题？)<br>
 
 [如何作答《综合应用能力  ( A 类 )》中的分析题？](https://zshene.github.io/Summary/如何作答《综合应用能力  ( A 类 )》中的分析题？)<br>
