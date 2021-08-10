@@ -1,4 +1,14 @@
+[研究过程中的目标意识和局外意识](https://zshene.github.io/Summary/目标意识和局外意识)<br>
+
 [作品意识](https://zshene.github.io/Summary/作品意识)<br>
+
+[怎样让自己有动力去研究一件事呢？](https://zshene.github.io/Summary/建立研究驱动力)<br>
+
+[研究的本质](https://zshene.github.io/Summary/研究的本质)<br>
+
+[盘州市市长信箱来信回复](https://zshene.github.io/Summary/盘州市市长信箱来信回复)<br>
+
+[研究和学习的区别](https://zshene.github.io/Summary/研究和学习的区别)<br>
 
 [如何作答《综合应用能力  ( A 类 )》中的概括题？](https://zshene.github.io/Summary/如何作答《综合应用能力  ( A 类 )》中的概括题？)<br>
 
